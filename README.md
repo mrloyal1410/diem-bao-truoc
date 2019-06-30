@@ -304,3 +304,23 @@ Nhện
 - Nhện trắng tin mừng: Khi bạn gặp phải nhện trắng sa trước mặt thì đây là tin mừng về tài lộc, tin từ xa tới, làm ăn phát đạt tiến tới,...
 - Nhện đen tin sang: Trường hợp bạn gặp phải nhện đen thì bạn không phải lo lắng vì đây là điềm báo bạn có quý nhân phù trợ, công việc hanh thông.
 - Ngoài ra các loài nhện khác sa trước mặt bạn thì là điềm xấu. Để xua đi điềm xui xẻo này, bạn lấy lửa đốt cho nhện co lên, hoặc chết thì điềm xấu sẽ không còn.
+
+Chó
+
+- Chó thường được biết đến là loài động vật vô cùng trung thành với chủ nhân. Chó còn là biểu tượng thần Tài. Nếu có một chú chó lạc vào nhà bạn, đừng lo lắng gì cả vì điều này báo hiệu rằng tình duyên của bạn sẽ gặp tốt lành trong suốt năm đó. Ngoài ra, phương diện tình cảm, công việc, học tập... cũng có nhiều thuận lợi. Mọi thứ suôn sẻ và đôi khi, những khúc mắc hiện tại cũng tự nhiên được hóa giải.
+
+Rắn
+
+- Rắn vào nhà sẽ mang lại cho gia chủ điềm may mắn. Nếu bạn gặp rắn trong nhà, trong vườn trong nhà hoặc ngoài đường có nghĩa là bạn sẽ có Quý nhân giúp đỡ. Rắn được cho là loài vật linh thiêng, do đó bạn không nên cố làm tổn hại đến chúng.
+
+Chim yến
+
+- Chim yến xuất hiện ở nhà bạn chứng tỏ con đường tình duyên, tiền bạc của bạn sẽ rộng mở trong nay mai. Khi gặp chim yến, bạn hãy biết chớp lấy thời cơ, thực hiện ngay những dự định mà cho dù người khác cho là hoang tưởng, táo bạo.
+
+Thỏ
+
+- Nếu một ngày nào đó một chú thỏ vào nhà bạn, hãy vui lên vì điều này báo hiệu bạn sắp một ý trung nhân lý tưởng. Thậm chí là khi đã có gia đình thì thỏ vào nhà sẽ là điềm báo cho tình cảm vợ chồng gắn kết, bền lâu.
+
+Ếch
+
+- Loài ếch có hình thù xấu xí nhưng đừng vì thế mà bạn xua đuổi nó khi thấy nó vào nhà bạn. Bởi lẽ, theo quan niệm của người xưa, ếch vào nhà thì đó là dấu hiệu tốt về tài chính, tiền sẽ đến với bạn.
