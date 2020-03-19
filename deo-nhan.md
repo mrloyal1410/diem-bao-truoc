@@ -1,6 +1,7 @@
 
 # Source:
 https://www.marry.vn/loi-khuyen-tu-marry/y-nghia-cac-ngon-tay-deo-nhan
+
 https://kimngocthuy.com/y-nghia-cua-tung-ngon-tay-deo-nhan.html
 
 # Đeo nhẫn ở ngón cái
