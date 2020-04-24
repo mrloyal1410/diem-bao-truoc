@@ -324,3 +324,42 @@ Thỏ
 Ếch
 
 - Loài ếch có hình thù xấu xí nhưng đừng vì thế mà bạn xua đuổi nó khi thấy nó vào nhà bạn. Bởi lẽ, theo quan niệm của người xưa, ếch vào nhà thì đó là dấu hiệu tốt về tài chính, tiền sẽ đến với bạn.
+
+---
+
+Các bộ phận trên cơ thể chúng ta khá nhạy cảm. Thực tế, chúng có thể bắt được những dấu hiệu nhỏ nhất mà não bạn đang cố gắng truyền đạt cho bạn và có thể dựa vào đấy để đoán trước tương lai của bạn.
+
+Giật cơ bắp
+
+- Nói một cách khoa học, sự co giật cơ bắp là điều mà bạn không thể kiểm soát và hầu như vô hại. Tuy nhiên, ta có thể dựa vào đó để đoán được tương lai của một người. Nếu người đàn ông giật liên tục các cơ bên trái cơ thể, điều đó có nghĩa là có một số tin xấu đối với họ, có thể là những bất ngờ trong gia đình hoặc mất việc làm.
+- Tuy nhiên, nếu các cơ bên phải cơ thể co giật, điều đó có nghĩa là có một tin tốt cho người đàn ông. Người phụ nữ thì ngược lại, các cơ giật nhẹ bên trái thì tốt còn bên phải thì thường sẽ có tin xấu.
+
+Trán giật nhẹ
+
+- Nếu trán của một người co giật, nghĩa là anh ta sẽ sớm nhất được một số thú vui trần tục. Mặc khác, nếu trán anh ta co giật liên tục nghĩa là người này sẽ sớm đạt được những lợi ích liên quan đến tiền bạc trong cuộc sống.
+
+Mắt trái và mắt phải co giật
+
+- Khi nói đến co giật mắt, nếu mắt trái của bạn giật liên tục nghĩa là bạn sớm nhận được tin tốt lành. Nếu mắt phải của bạn co giật nghĩa là sớm thôi, tất cả những giấc mơ của bạn sẽ thành hiện thực.
+
+Má co giật và ý nghĩa
+
+- Nếu cả hai má của bạn giật cùng một lúc thì điều này có nghĩa là bạn sẽ sớm đạt được rất nhiều tiền của. Đây là một hiện tượng khá hiếm gặp, nhưng nếu điều đó xảy đến với bạn thì hãy chuẩn bị đón nhận những điều tốt đẹp đang đến.
+
+Giật nhẹ môi
+
+- Nếu đôi môi của bạn bỗng nhiên giật khi bạn đang nói chuyện, điều này có nghãi là bạn sẽ sớm thấy một số người bạn mới – có thể từ môi trường công sở hoặc những người bạn cũ sẽ kết nối trở lại với bạn.
+
+Hai bên bã vai
+
+- ếu bã vai phải của bạn thỉnh thoảng giật nhẹ thì bạn sẽ sớm độc lập về tài chính – bạn sẽ có một công việc mới hoặc có thể được thăng tiến. Bạn thậm chí có thể đi du lịch nước ngoài.
+- Co giật bên vai trái sẽ cho thấy sức khỏe của bạn sớm tốt hơn.
+- Tuy nhiên, nếu cả hai vai của bạn co giật nghĩa là bạn sắp bị lôi kéo vào một cuộc tranh chiến lớn. Nó cũng chỉ ra nguy cơ tiềm ẩn về sức khỏe.
+
+Ngón tay giật nhẹ
+
+- Nếu các ngón tay co giật nhẹ, có nghĩa là bạn sẽ sớm gặp một người bạn cũ hoặc người yêu cũ. Cả hai có thể kết nối lại và sẽ bùng cháy hơn bao giờ hết.
+
+Khuỷu tay co giật nhẹ và ý nghĩa
+
+- Nếu khuỷu tay của bạn giật nhiều vào thời gian gần đây, bạn sẽ sớm tham gia vào một cuộc chiến lớn, có thể với những người mà bạn biết rõ. Nếu bạn có thể, hãy tránh xa các cuộc tranh cãi để không bị đánh mất một người bạn.
