@@ -30,3 +30,30 @@ https://kimngocthuy.com/y-nghia-cua-tung-ngon-tay-deo-nhan.html
 - Tăng trí thông minh, vận may và phòng kẻ xấu hãm hại. Ngón út đại diện cho trí tuệ và phúc khí. Thông thường, những người đeo nhẫn ở ngón út là những người độc thân. Ngón út cũng thường được dùng để ngoắc tay hứa hẹn vì đây là bộ phận có ý nghĩa giữ gìn những lời hứa.
 - Nếu muốn trưởng thành, chuyển vận rủi sang may mắn thì nên đeo nhẫn ở ngón út. Đeo nhẫn ở vị trí này cũng giúp bạn phòng bị người xấu hãm hại và được bảo hộ.
 Chất liệu thích hợp: thủy tinh tím, đá Lapis lazuli.
+
+---
+
+Source:
+https://2sao.vn/nhin-ngon-tay-cua-nguoi-dan-ong-biet-cach-doi-xu-voi-phu-nu-n-176794.html
+
+Nhìn vào ngón tay của người đàn ông để biết cách anh ta đối xử với người phụ nữ của mình
+
+Ngón trỏ dài hơn hẳn các ngón còn lại
+
+- Đàn ông có ngón trỏ dài hơn các ngón còn lại thường có bản chất hay cáu kỉnh, và sẽ thường cực kỳ khó tính cũng như có xu hướng bạo lực với phụ nữ. Vợ của người đàn ông có dạng các ngón tay như vậy thường sẽ phải chịu đựng nhiều và có khả năng trở thành nạn nhân của sự kích động cảm xúc.
+
+Các đầu ngón tay phình lên
+
+- Nếu các đầu ngón tay bị phình lên thì điều này biểu thị những đặc điểm của một người khá vụng trộm. Anh ta sẽ mãi mãi giấu mọi thứ riêng cho anh ta, thuộc về tiền bạc, địa vị, cảm xúc đối với người phụ nữ trong cuộc sống của họ.
+
+Ngón đeo nhẫn và ngón trỏ có chiều dài bằng nhau
+
+- Đàn ông có ngón đeo nhẫn và ngón trỏ có chiều dài bằng nhau, điều này biểu hiện tính cách của một người quyến rũ, luôn có mục đích cụ thể đối với phụ nữ. Họ sẽ chu đáo và lịch sự, che giấu bên trong chính sự quyến rũ của họ là một kế hoạch nghiêm túc.
+
+Ngón đeo nhẫn dài hơn
+
+- Đàn ông có ngón đeo nhẫn dài hơn sẽ có bản tính hung hăng và tính cách này phát triển một cách đáng lo ngại, gây rắc rối cho cuộc sống hôn nhân và gia đình của họ.
+
+Có lông đen dài trên các đốt ngón tay
+
+- Những người đàn ông có phần lông đen dài sau các đốt ngón tay hoặc mặt sau lòng bàn tay của họ thường không may mắn trong những việc mạo hiểm mà họ làm, so với những người đàn ông khác.
